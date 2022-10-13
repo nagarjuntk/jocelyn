@@ -1,3 +1,3 @@
 # jocelyn
 hi
-akshay the great
+the great
